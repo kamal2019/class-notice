@@ -4,8 +4,8 @@
 plz see this for the information 
 
 sunday
-7-> NM test
-10-> Lab exam NM
+7AM-> NM test
+10AM-> Lab exam NM
 
 
 
